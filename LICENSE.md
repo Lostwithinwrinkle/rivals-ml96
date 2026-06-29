@@ -1,4 +1,4 @@
-
+Experience rivals like never before with new Scripts for rivals, the #1 Script. Includes auto-collect and auto-sell for unbeatable performance.
 
 
 
